@@ -6,7 +6,7 @@
 <a href="http://kij.shirokuriwaki.com/s/" target="_blank">网址二</a> 　 
 <a href="http://kbj.shirokuriwaki.com/tv.html" target="_blank">网址三</a>
 <a href="https://disk.yandex.ru/d/wIUK0uxc3Gk4Ng" target="_blank">　• 云下载 </a></p>
-<p>◆ 分 享 网 址 ：k.gizm.ga  （ 请 收 藏） </p>
+<p>◆ 分 享 网 址 ：l.gizm.ga  （ 请 收 藏） </p>
 
 <p>◎•  小 站：  
 <a href="http://ksj.shirokuriwaki.com/" target="_blank">网址一</a> 　 
